@@ -35,5 +35,3 @@ https://www.bilibili.com/video/BV1Hq4y1q7Bf Lidar
 https://www.bilibili.com/video/BV1rb4y1B7WM
 
 https://www.bilibili.com/video/BV15b4y1B7gq
-
-https://www.bilibili.com/video/BV1YF41187b4
